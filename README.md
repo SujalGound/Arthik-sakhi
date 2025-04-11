@@ -1,1 +1,0 @@
-# Arthik-sakhi
